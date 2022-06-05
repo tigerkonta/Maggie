@@ -1,0 +1,1 @@
+The Recipe of maggie is first take the maggie breake in 1/2.Then boiled the water upto the level. Then add maggie in it and take the masala of maggie put it in the cauldron and adda vegetable in it.Then upto mood we need to add mood masala .Then boiled for 2 min and then take out the maggie and let the steam goes outand after 1 or 2 min . Take the maggie in plate and eat it.
